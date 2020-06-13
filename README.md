@@ -1,2 +1,0 @@
-# shanmathi.github.io
-Portfolio
